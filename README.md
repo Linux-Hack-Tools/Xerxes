@@ -51,4 +51,4 @@ THIS SOFTWARE IS PROVIDED FOR EDUCATIONAL USE ONLY! IF YOU ENGAGE IN ANY ILLEGAL
 
 **Please, send us pull requests!**
 
-[jejak cyber](https://jejakcyber.com)
+Visit : [wikiessayus.com](https://wikiessayus.com)
